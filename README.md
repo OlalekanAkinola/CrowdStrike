@@ -251,6 +251,6 @@ Market Analyst and Investment Research Professional
 
 LinkedIn: https://www.linkedin.com/in/olalekan-akinola
 
-Lemm Financials: https://olalekanakinola.substack.com/
+Olalekan Akinola: https://olalekanakinola.substack.com/
 
 GitHub: https://github.com/OlalekanAkinola
